@@ -3,7 +3,7 @@
 ## Video
 [Video](https://youtu.be/LyINBQFpL0o) <-- Make sure to watch this video first
 
-[Video #2](https://youtu.be/aaAE3MmOIBc)<-- Ms. Hall's Supplemental Video
+[Video #2](https://youtu.be/-D8o2RalEss)<-- Ms. Hall's Supplemental Video
 
 ## Directions 
 ### Step #1 - Add images <br>
